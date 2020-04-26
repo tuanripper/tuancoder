@@ -1,2 +1,0 @@
-# tuancoder
-Dương Quỳnh Tuấ
